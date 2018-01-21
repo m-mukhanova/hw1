@@ -14,11 +14,11 @@
 
 - Электронная почта: <marmkhnv@gmail.com> 
 
-- [Telegram] (https://t.me/m_mukhanova)
+- [Telegram](https://t.me/m_mukhanova)
 
-- [VK] (https://vk.com/mshmkh)
+- [VK](https://vk.com/mshmkh)
 
-- [Facebook] (https://www.facebook.com/mmukhanova)
+- [Facebook](https://www.facebook.com/mmukhanova)
 
 ### Где меня найти по будням
 
